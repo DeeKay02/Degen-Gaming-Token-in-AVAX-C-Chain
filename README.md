@@ -1,1 +1,1 @@
-# Degen-Gaming-Token-in-AVAX-C-Chain
+# Degen Gaming Token in AVAX C-Chain
